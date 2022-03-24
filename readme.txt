@@ -1,1 +1,1 @@
-Ders ile ilgili dosyalar eklenecektir
+Hi everyone
